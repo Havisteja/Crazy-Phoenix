@@ -1,2 +1,2 @@
 # Crazy-Phoenix
-Saiteja is a the best employee
+Saiteja is the best employee
